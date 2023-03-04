@@ -7,7 +7,7 @@ About me
 
 ❤️ Apaixonado por tecnologia e em transformar códigos em soluções!
 
-💬 Pergunte sobre mim <a href="[instagram.com/rafaellucindoficial](https://www.instagram.com/rafaellucindoficial/)">aqui</a>
+💬 Pergunte sobre mim <a href="https://www.instagram.com/rafaellucindoficial/">aqui</a>
 
 
 <div style="display: inline_block"><br>
